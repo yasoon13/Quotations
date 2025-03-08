@@ -1,3 +1,5 @@
+# Peter Thiel
+Thinking about business from first principles instead of formulas.
 # John F. Kennedy
 Once you say that you're going to settle for second, that's what happens to you in life.
 # Oscar Wilde
