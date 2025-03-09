@@ -1,3 +1,7 @@
+# Benjamin Disraeli
+Action may not always bring hapiness but there is no hapiness without action
+# Fortune Cookie
+Many a false step was made by standing still
 # Peter Thiel
 Thinking about business from first principles instead of formulas.
 # John F. Kennedy
