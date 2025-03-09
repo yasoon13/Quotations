@@ -1,5 +1,5 @@
 # Benjamin Disraeli
-Action may not always bring hapiness but there is no hapiness without action
+Action may not always bring hapiness, but there is no hapiness without action
 # Fortune Cookie
 Many a false step was made by standing still
 # Peter Thiel
