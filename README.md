@@ -1,3 +1,7 @@
+# William of Occam
+It is vain to do more what can be done with less.
+# Peter Drucker
+What gets measured gets managed.
 # Benjamin Disraeli
 Action may not always bring hapiness, but there is no hapiness without action
 # Fortune Cookie
