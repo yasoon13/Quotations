@@ -1,3 +1,5 @@
+# Ralph Charell
+Do your own thinking independently. Be a chess player, not a chess piece.
 # William of Occam
 It is vain to do more what can be done with less.
 # Peter Drucker
