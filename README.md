@@ -1,3 +1,5 @@
+# Harry S. Truman
+All readers are not leaders, but all leaders read.
 # Henry David Thoreau
 A man is rich in proportion to the number of things he can afford to let alone.
 # Malcolm X
