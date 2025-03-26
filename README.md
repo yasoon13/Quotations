@@ -1,3 +1,5 @@
+# David Ogilvy
+Rely on the truth and make the truth interesting.
 # Ralph Waldo Emerson
 As to methods there may be a million and then some, but principles are few. The man who grasps principles can successfully select his own methods. The man who tries methods, ignoring principles, is sure to have trouble.
 # Harry S. Truman
