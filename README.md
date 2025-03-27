@@ -1,4 +1,6 @@
 # David Ogilvy
+The consumer is not a moron. She is your wife. Don't insult her.
+# David Ogilvy
 First class business in a first class way.
 # David Ogilvy
 Rely on the truth and make the truth interesting.
