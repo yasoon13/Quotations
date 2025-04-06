@@ -1,3 +1,5 @@
+# AT&T
+The system is the solution.
 # David Ogilvy
 The consumer is not a moron. She is your wife. Don't insult her.
 # David Ogilvy
