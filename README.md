@@ -1,3 +1,5 @@
+# Mike Maples
+Companies go out of business when they make the wrong decisions or, just as important, make too many decisions. The latter creates complexity.
 # AT&T
 The system is the solution.
 # David Ogilvy
