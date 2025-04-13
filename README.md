@@ -1,3 +1,5 @@
+# George Bernard Shaw
+Liberty means responsiblity. That is why most men dread it.
 # Mike Maples
 Companies go out of business when they make the wrong decisions or, just as important, make too many decisions. The latter creates complexity.
 # AT&T
