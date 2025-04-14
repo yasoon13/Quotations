@@ -1,3 +1,5 @@
+# Chinese Proverb
+If you must play, decide on three things at the start: rules of the game,the stakes, and the quitting time.
 # George Bernard Shaw
 Liberty means responsiblity. That is why most men dread it.
 # Mike Maples
