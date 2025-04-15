@@ -1,3 +1,7 @@
+# Saint Augustine
+This is the very perfection of a man, to find out his own imperfection.
+# Mohandas Gandhi
+There is more to life than increasing its speed.
 # Rolf Potts
 The simple willingness to improvise is more vital, in the long run, than research.
 # Chinese Proverb
