@@ -1,3 +1,5 @@
+# Robert Henri
+To be free, to be happy and fruitful, can only be attained through scrafice of many common but overestimated things.
 # Saint Augustine
 This is the very perfection of a man, to find out his own imperfection.
 # Mohandas Gandhi
