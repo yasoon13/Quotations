@@ -5,6 +5,8 @@
 &nbsp; "Only a little while," the Mexican replied in surprisingly good English. <br>
 &nbsp; "Why don't you stay out longer and catch more fish?" the American then asked. <br>
 &nbsp; "I have enough to support my family and five a few to friends," the Mexican said as he unloaded them into a basket.
-
+"But... What do you do with the rest of your time?" <br>
+The Mexican looked up and smiled. "I sleep late, fish a little, play with my children, take a siesta with my wife, Julia, and stroll into the village each evening, where I sip wine and play guitar with my amigos. I have a full and busy life, senor."
+The American laughed and stood tall
 ## Story 2
 ## Story 3
