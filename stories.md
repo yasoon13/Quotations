@@ -7,6 +7,13 @@
 &nbsp; "I have enough to support my family and five a few to friends," the Mexican said as he unloaded them into a basket.
 &nbsp; "But... What do you do with the rest of your time?" <br>
 &nbsp; The Mexican looked up and smiled. "I sleep late, fish a little, play with my children, take a siesta with my wife, Julia, and stroll into the village each evening, where I sip wine and play guitar with my amigos. I have a full and busy life, senor." <br>
-&nbsp; The American laughed and stood tall. "Sir, I'm a Havard MBA and can help you. You should spend more time fishing, and with the proceeds, buy a bigger boat. In no time, you could buy several boats with the increased haul. Eventually, you would have a fleet of fishing boats."
+&nbsp; The American laughed and stood tall. "Sir, I'm a Havard MBA and can help you. You should spend more time fishing, and with the proceeds, buy a bigger boat. In no time, you could buy several boats with the increased haul. Eventually, you would have a fleet of fishing boats." <br>
+&nbsp; He continued, "Instead of selling your catch to a middleman, you would sell directly to the consumers, eventually opening your own cannery. You would control the product, processing, and distribution. You would need to leave this smeall coastal fishing village, of course, and move to Mexico City, then to Los Angeles, and eventually New York City, where you could run you expanding enterprise with proper management." <br>
+&nbsp; The Mexican fisherman asked, "But, senor, how long will all this take?" <br>
+&nbsp; To which the American replied, "15-20 years. 25 tops" <br>
+&nbsp; "But what then senor?" <br>
+&nbsp; The American laughed and said, "That's the best part. When the time is right, you would announce an IPO and sell your company stock to the public and become very rich. You would make millions." <br>
+&nbsp; "Millions, senor? Then what?" <br>
+&nbsp; "Then you would retire and move to a small coastal fishing village, where you would sleep late, fish a little, play with your kids, take a siesta with your wife, and stroll to the village in the evenings where you could sip wine and play your guitar with your amigos..." <br>
 ## Story 2
 ## Story 3
