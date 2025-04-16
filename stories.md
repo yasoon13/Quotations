@@ -5,8 +5,8 @@
 &nbsp; "Only a little while," the Mexican replied in surprisingly good English. <br>
 &nbsp; "Why don't you stay out longer and catch more fish?" the American then asked. <br>
 &nbsp; "I have enough to support my family and five a few to friends," the Mexican said as he unloaded them into a basket.
-"But... What do you do with the rest of your time?" <br>
-The Mexican looked up and smiled. "I sleep late, fish a little, play with my children, take a siesta with my wife, Julia, and stroll into the village each evening, where I sip wine and play guitar with my amigos. I have a full and busy life, senor."
-The American laughed and stood tall
+&nbsp; "But... What do you do with the rest of your time?" <br>
+&nbsp; The Mexican looked up and smiled. "I sleep late, fish a little, play with my children, take a siesta with my wife, Julia, and stroll into the village each evening, where I sip wine and play guitar with my amigos. I have a full and busy life, senor." <br>
+&nbsp; The American laughed and stood tall. "Sir, I'm a Havard MBA and can help you. You should spend more time fishing, and with the proceeds, buy a bigger boat. In no time, you could buy several boats with the increased haul. Eventually, you would have a fleet of fishing boats."
 ## Story 2
 ## Story 3
