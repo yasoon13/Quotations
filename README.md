@@ -1,4 +1,8 @@
-# Tim Ferris
+# Articolo 31
+I have learned that nothing impossible, and that almost nothing is easy.
+# Frank Wilczek
+If you don't make mistakes, you're not working on hard enough problems. And that's a big mistake.
+# Tim Ferriss
 If you can't define it, or act upon it, forget it.
 # Robert Henri
 To be free, to be happy and fruitful, can only be attained through scrafice of many common but overestimated things.
