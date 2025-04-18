@@ -1,3 +1,5 @@
+# Tim Ferriss
+Time without attention is worthless, so value attention over time.
 # Articolo 31
 I have learned that nothing impossible, and that almost nothing is easy.
 # Frank Wilczek
