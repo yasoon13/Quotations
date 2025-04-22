@@ -16,4 +16,6 @@
 &nbsp; "Millions, señor? Then what?" <br>
 &nbsp; "Then you would retire and move to a small coastal fishing village, where you would sleep late, fish a little, play with your kids, take a siesta with your wife, and stroll to the village in the evenings where you could sip wine and play your guitar with your amigos..." <br>
 ## Story 2: The Naked Truth
+&nbsp; According to a 19th century legend, Truth and Lie met one day and agreed to swim in the pond together. However, Lie, seeing that Truth was enjoying itself in the water, quickly came out and after putting on Truth's clothes, ran away. Truth has been looking everywhere since then to find Lie and get its clothes back. The world, however, seeing the naked Truth, turned its gaze away with contempt and rage. <br>
+&nbsp; As the legend goes, Truth returned back to the pond and disappeared forever, hiding its shame. Since then, Lie goes around the world dressed as Truth, "satisfying the needs of society, because the world harbours no wish at all to meet the naked Truth" <br>
 ## Story 3: Sharpening the Saw
