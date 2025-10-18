@@ -1,4 +1,6 @@
 # Bill Beswick
+[INSIDE THE MIND OF A WINNER | Sports Psychologist Bill Beswick * train to dominate *](https://youtu.be/Cw6xuzosn4s?si=PaHlM5bVOmRmvN1j)
+# Bill Beswick
 Wake up every morning and don't let the old man in.
 # Tim Ferriss
 Time without attention is worthless, so value attention over time.
