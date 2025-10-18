@@ -1,3 +1,7 @@
+# Grind Buddy
+[If You Want to be Wealthy & Happy...](https://youtu.be/OyKIbaSk2s4?si=IaOGX9DtwgPPqRfh)
+# Grind Buddy
+[How to Get Whatever You Want](https://youtu.be/uOcKF-aLHyw?si=BZi5fiAwRhhR3lol)
 # Bill Beswick
 [INSIDE THE MIND OF A WINNER | Sports Psychologist Bill Beswick * train to dominate *](https://youtu.be/Cw6xuzosn4s?si=PaHlM5bVOmRmvN1j)
 # Bill Beswick
