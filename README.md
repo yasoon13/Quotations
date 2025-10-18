@@ -1,3 +1,5 @@
+# Bill Beswick
+Wake up every morning and don't let the old man in.
 # Tim Ferriss
 Time without attention is worthless, so value attention over time.
 # Articolo 31
