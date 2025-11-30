@@ -1,4 +1,6 @@
 # Jim Donovan
+["The Making of an Investment Banker," With Jim Donovan](https://www.youtube.com/watch?v=3Pk8EmyK7kw)
+# Jim Donovan
 ["Secrets to Optimal Client Service," With Jim Donovan](https://www.youtube.com/watch?v=hJbwyN4ZoCg)
 # Grind Buddy
 [If You Want to be Wealthy & Happy...](https://youtu.be/OyKIbaSk2s4?si=IaOGX9DtwgPPqRfh)
