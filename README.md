@@ -1,3 +1,5 @@
+# Al-Ghazali
+[Al-Ghazali: The Thinker Who Linked Money to Morality](https://www.youtube.com/watch?v=yx3iE0LuxbI)
 # Jim Donovan
 ["The Making of an Investment Banker," With Jim Donovan](https://www.youtube.com/watch?v=3Pk8EmyK7kw)
 # Jim Donovan
